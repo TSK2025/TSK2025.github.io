@@ -2,3 +2,7 @@ This is Dr. Thiagarajan Soundappan, Electrochemist/Engineer interested in Electr
 Our lab name is NanoElectrochemical Analysis and Energy Storage Laboratory (NEST Lab) at Navajo Technical University. 
 
 # Thiagarajan Soundappan
+*email gets here
+*linkedin get here
+*office address here
+*github address here
