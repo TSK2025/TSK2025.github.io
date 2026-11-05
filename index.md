@@ -12,3 +12,4 @@ Our lab name is NanoElectrochemical Analysis and Energy Storage Laboratory (NEST
 
 My [linkedin](https://www.linkedin.com/in/thiagarajansoundappan/)
 
+![My NSF news coverage](https://nsf-gov-resources.nsf.gov/styles/_inline_image_full_width/s3/media_hub/Dr.Soundappan7.jpg?itok=IHjR5qHi)
